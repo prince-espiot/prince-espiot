@@ -145,9 +145,9 @@ _Ghana_
 - **Jari Sahinoja**  
   Nokia Oy  
   Email: jari.sahinoja@nokia.com  
-  Phone: +358405906637
+  
 
 - **Prosper Evergreen**  
   SOK Group Oy  
   Email: prosper.evergreen@sok.fi  
-  Phone: +358406864084
+  
