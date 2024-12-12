@@ -4,7 +4,7 @@
 
 Espoo  
 Email: okumop@yahoo.com  
-Phone: 0407590434  
+
 
 ---
 
